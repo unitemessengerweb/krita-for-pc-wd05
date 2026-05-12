@@ -1,4 +1,4 @@
-# 
+# Krita for PC | Krita for Windows vip Template: automated-actions & content-aware-fill is the best Krita for PC | Krita for Windows template, featuring automated-actions and
 
 
 
